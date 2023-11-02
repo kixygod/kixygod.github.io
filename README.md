@@ -1,1 +1,1 @@
-# kixygod.github.io
+# [Open site](kixygod.github.io)
