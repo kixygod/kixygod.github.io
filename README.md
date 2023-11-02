@@ -1,1 +1,1 @@
-# [Open site](kixygod.github.io)
+# [Open site](https://kixygod.github.io/)
